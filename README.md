@@ -1,0 +1,1 @@
+# apagarMemoria.io
